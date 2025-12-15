@@ -1,4 +1,4 @@
-##   麻瓜瓜的 GitHub 是怎么回事呢？麻瓜瓜相信大家都很熟悉吧，但是麻瓜瓜的 GitHub 是怎么回事呢？下面就让小编带大家一起来了解一下叭
+## 👋
 
 ### B站ID ：[Magicst_Magoo](https://space.bilibili.com/398819480)
 
